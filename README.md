@@ -8,6 +8,6 @@ One of my favourite ( お気に入り Okiniiri) .Trying hard to do something wit
 #some glimpse of my experience with networks:
 ![Screenshot from 2021-06-16 18-33-59](https://user-images.githubusercontent.com/83119874/122222015-92202900-ced1-11eb-8ded-473a34f6e841.png)
 
-#NARUTO- guts to never give up!!
+
 
 
